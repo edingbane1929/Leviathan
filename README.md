@@ -221,4 +221,4 @@ Leviathan is offered as a **complete free version** with all features and update
 Start your entertainment journey today with **Leviathan**! Download now and enjoy a world of movies and TV series at your fingertips.
 
 ---
-**Last updated:** 2026-10-31 06:46:11 UTC
+**Last updated:** 2026-10-31 13:26:15 UTC
